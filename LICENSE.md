@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with trader joe trading bot custom Strategy | transaction-batching & sniper-trades, the #1 trader joe trading bot. Includes transaction-batching and
 
 
 
